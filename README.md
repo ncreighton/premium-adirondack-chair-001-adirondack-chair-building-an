@@ -1,0 +1,2 @@
+# premium-adirondack-chair-001-adirondack-chair-building-an
+Tired of second-guessing your angle cuts and ending up with wobbly Adirondack chairs? The Adirondack Chair Building &amp; Angle Cut Craft Hub turns the most frustrating part of the build—calculating and cutting those tricky angles—into a streamlined, mistake-proof process.  This Notion template eliminates the guesswork of angle calculations and cut pla
